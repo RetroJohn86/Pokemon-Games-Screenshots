@@ -10,7 +10,7 @@ All images i captured and found are located in these Listed Folders and are orga
 
 **This repo is for educational use only.**
 
-**All content found within this repo is the property of Bungie**
+**All content found within this repo is the property of The Pokemon Company.**
 
 **Retro John 86 did modify images found within this repo.**
 
