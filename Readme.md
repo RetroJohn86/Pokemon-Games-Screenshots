@@ -3,7 +3,7 @@
 
 **+** __**Repository Info**__
 
-As from the September 2024, the Download Size for this Repo is : **79.5 MB** ( Please Note The Size Can Change At Anytime Due Too Updates. )
+As from the December 2024, the Download Size for this Repo is : **79.5 MB** ( Please Note The Size Can Change At Anytime Due Too Updates. )
 **This Repository is of all Saved Pokemon Games Screenshots**
 
 
